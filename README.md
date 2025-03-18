@@ -1,16 +1,20 @@
-## Hi there 👋
-
-<!--
-**Ingokov/Ingokov** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+> >$${\color{lightgreen} 𝕊𝕀𝔾ℕ𝕀ℕ𝔾 \space 𝕀ℕ...}$$
+<p align="left"> $${\color{lightgreen}>>𝔸ℂℂ𝔼𝕊𝕊 \space 𝔾ℝ𝔸ℕ𝕋𝔼𝔻.}$$
+<p align="left"> $${\color{lightgreen}>>WELCOME.[OPERATOR] \space SORROWFUL.}$$
+<p align="center"> <img width="736" height="245" src="https://i.pinimg.com/originals/82/6a/ad/826aade42cfdb0eb4a7bd62afa6f9567.gif"> </p>
+<p align="center"> <img width="300" height="300" src="https://i.pinimg.com/736x/9b/6c/cd/9b6ccd12140bf2de783308b33e4ec284.jpg"> </p>
+<p align="center"> $${\color{lightgreen}Veliona'Vee'Goats.}$$
+<p align="center"> $${\color{lightgreen}𝚗𝚘𝚝 \space 𝚜𝚒𝚗𝚐𝚕𝚎 \space 𝚢𝚎𝚝 \space 𝚜𝚒𝚗𝚐𝚕𝚎 \space 𝚊𝚝 \space 𝚝𝚑𝚎 \space 𝚜𝚊𝚖𝚎 \space 𝚝𝚒𝚖𝚎?}$$
+<p align="center"> $${\color{lightgreen}𝙰𝚂𝙻/𝙼𝙲𝙳/𝟾𝟶𝟶𝚃𝙷/𝙲𝙾𝙳 \space 𝚛𝚎𝚐𝚒𝚖𝚎𝚗𝚝 \space 𝚟𝚎𝚝𝚎𝚛𝚊𝚗}$$
+<p align="center"> $${\color{lightgreen}ᴀɢᴇ' 13+ \space Minor}$$
+<p align="center"> $${\color{lightgreen} 𝙱𝚒𝚘𝚕𝚘𝚐𝚒𝚌𝚊𝚕 \space 𝚏𝚎𝚖𝚊𝚕𝚎' \space 𝚂𝚑𝚎/𝚑𝚎𝚛}$$
+<p align="center"> <a href="https://github.com/johnmarstons" target="_blank">Honorable mention! Kieran!</a>
+<p align="left"> <a href="https://rentry.co/velionaslife" target="_blank">RENTRY</a> $${\color{green}'𝙴𝚟𝚎𝚗 \space 𝚒𝚏 \space 𝙸 \space 𝚐𝚒𝚟𝚎 \space 𝚊𝚠𝚊𝚢. \space 𝙴𝚟𝚎𝚗 \space 𝚒𝚏 \space 𝙸 \space 𝚕𝚘𝚜𝚎 \space 𝚜𝚘𝚖𝚎 \space 𝚍𝚊𝚢. \space 𝙴𝚟𝚎𝚗 \space 𝚒𝚏 \space 𝚖𝚢 \space 𝚖𝚎𝚖𝚘𝚛𝚒𝚎𝚜 \space 𝚏𝚊𝚍𝚎. \space 𝙲𝚊𝚗 \space 𝙸 \space 𝚔𝚎𝚎𝚙 \space 𝚐𝚘𝚒𝚗𝚐?'}$$<a href="https://www.patreon.com/preview/campaign?u=72833203&fan_landing=true&view_as=public" target="_blank">PT DETAILS/PATREON</a> 
+<p align="left"><img width="100" height="60" src="https://64.media.tumblr.com/743078202a14fac5f972f44ef7273a8e/f831f004efa1d7dc-b2/s100x200/28685f75a49003c7f8a7315aab5a95ff8af3923f.pnj"><img width="100" height="60" src="https://64.media.tumblr.com/100e301f265b9a7dff6cde2af5907800/c35b95fb69cd6ee2-c1/s100x200/49467ebbc48ff95c9e352b38f011b3aed76760be.jpg"><img width="100" height="60" src="https://64.media.tumblr.com/b3c387650d8c66e62d87eaaadc502073/21317507f7352712-90/s100x200/0e66996acce2e367ddb860482501bddb56e7f263.webp"><img width="100" height="60" src="https://64.media.tumblr.com/05709a5f0eb47da30aee563c462a7338/21317507f7352712-4b/s100x200/7324b9651fc5c546142d791c39ff5201c274891b.webp"><img width="100" height="60" src="https://64.media.tumblr.com/8bddfaedcd5f70dee00eee981df7ccb9/97603c9c3129af56-c1/s100x200/df7842ce1abfd63d70a3ee2f5682efe6ddd70c5a.gifv"><img width="100" height="60" src="https://64.media.tumblr.com/1670a143ad2c678837d3f76292bd1361/b9fa967118b999fa-0a/s100x200/93921296967e2bed424ba9525f44f10dcee0ee86.pnj"><img width="100" height="60" src="https://64.media.tumblr.com/5a59f91cd9eec1be57a651ad48679f4b/eed262c3dd030bba-a2/s100x200/53eb52d058e5e319a9ed184ba287c4614bee442b.pnj"><img width="100" height="60" src="https://64.media.tumblr.com/d488d70a24064a4ac87925d1d3bc080b/cae7cabe6833fef0-41/s75x75_c1/c847b6c7d34437dcf04328eebf575ca02c81c5b1.gifv"><img width="100" height="60" src="https://64.media.tumblr.com/fe1987755c5de0b2a85d3140d60478d9/6994be8b72434c80-a1/s400x600/2c397608df0b3b68f3ad41be56e51ac4cb98571a.jpg"><img width="100" height="60" src="https://64.media.tumblr.com/4e95a7b8110b148a8d9475b4696c6658/d0bbc30c7380b4aa-60/s100x200/cbc7cdf2ddb8972d358b29373f6891729f39c06c.gifv"></p>
+<p align="center"> $${\color{green}'𝙸 \space 𝚌𝚘𝚗𝚝𝚒𝚗𝚞𝚎 \space 𝚛𝚎𝚜𝚝𝚕𝚎𝚜𝚜𝚕𝚢!'}$$ $${\color{red}ΣЯЯӨЯ}$$ $${\color{green}'𝙺𝚒𝚕𝚕 \space 𝚝𝚑𝚎 \space 𝚎𝚛𝚛𝚘𝚛 \space 𝚔𝚒𝚕𝚕𝚒𝚗𝚐 \space 𝚖𝚎!'}$$ $${\color{grey} 'L̷a̷u̷g̷h̷i̷n̷g̷ ̷o̷u̷t̷ ̷s̷o̷ ̷d̷e̷s̷p̷e̷r̷a̷t̷e̷l̷y̷ '}$$ $${\color{red}ΣЯЯӨЯ}$$
+<p align="center"> $${\color{lightgreen} 𝚂𝙾𝙽𝙶 \space 𝚁𝙴𝙲𝙲𝙾𝙼𝙴𝙽𝙳𝙰𝚃𝙸𝙾𝙽𝚂!}$$
+<p align="center"> <a href="https://www.youtube.com/watch?v=k_kb8LhgkeY" target="_blank">SONG0</a><img width="25" height="25" src="https://64.media.tumblr.com/f9f09100333ffe8fb0a77c20d7a6112b/52a13ab225999e59-6a/s100x200/4ea3f619855b14af32c8d0f13d433f1dc8b6618b.pnj">
+<p align="center"> <a href="https://www.youtube.com/watch?v=Pz-WfWQhkeU" target="_blank">SONG1</a><img width="25" height="25" src="https://64.media.tumblr.com/25fda54f333d7daaefa498e7c00331c6/52a13ab225999e59-c7/s100x200/f494a6ef6664b0c7e120f9bb45b51e4c10b5603b.pnj">
+<p align="center"> <a href="https://www.youtube.com/watch?v=KCM9gE6dYfc" target="_blank">SONG2</a><img width="25" height="25" src="https://64.media.tumblr.com/575660f233723369dea50f4be49eceae/52a13ab225999e59-fb/s100x200/b56d866db0ec20bdb237038fa510851ccd05bd70.pnj">
+<p align="center"> <a href="https://www.youtube.com/watch?v=bFcYznzGyXc" target="_blank">SONG3</a><img width="25" height="25" src="https://64.media.tumblr.com/e4f3e48b9f3cdbbd3f3e1ca648a8f899/52a13ab225999e59-9a/s100x200/a858ba55edb90c2bb1acd15c9b1e33161d0938fb.pnj">
+<p align="center"> <a href="https://www.youtube.com/watch?v=W4igoGa72J8" target="_blank">SONG4</a><img width="25" height="25" src="https://64.media.tumblr.com/9a8a0dab4322388d79db311146afac8b/52a13ab225999e59-c5/s100x200/d9ac0cf8bdf3cf8761ed712e31f7f8cf960b5519.pnj">
